@@ -1,0 +1,2 @@
+# AMRCoin
+(AMR)
